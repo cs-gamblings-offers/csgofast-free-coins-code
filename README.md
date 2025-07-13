@@ -9,7 +9,7 @@ Looking for a working **CSGOFAST promo code** in 2025? Start your journey with *
 
 ## 🚀 What is CSGOFAST?
 
-[CSGOFAST](https://csgofast.com) is one of the most popular CS:GO gambling sites offering a wide range of games including:
+[CSGOFAST](https://csgofast.com/?ref=2025BONUS) is one of the most popular CS:GO gambling sites offering a wide range of games including:
 
 - 🎰 Roulette
 - 💣 Crash
