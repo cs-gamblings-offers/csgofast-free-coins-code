@@ -1,6 +1,6 @@
-# 🎁 CSGOFAST Promo Code 2025 – Get Free Coins Instantly!
+# 🎁 CSGOFAST Promo Code 2025 – Get Free Coins and Case Instantly!
 
-Looking for a working **CSGOFAST promo code** in 2025? Start your journey with **free coins** using our exclusive referral code.
+Looking for a working **CSGOFAST promo code** in 2025? Start your journey with **free coins** and **free case** using our exclusive referral code.
 
 🔥 **Promo Code:** `2025BONUS`  
 🔗 **Sign up here:** [CSGOFast signup](https://csgofast.com/?ref=2025BONUS)
